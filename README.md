@@ -1,20 +1,21 @@
 <h6 align="center">
-THE goonster
+THE chrichard shipper
 <h6 align="center">
-non-sharing yumeshipper
+non-sharing richard aiken yumeshipper
 
 <h6 align="center">
 <img src="https://komarev.com/ghpvc/?username=lumberdean&color=795548&label=🔪">
 </p>
   
 <h6 align="center">
-"Oh i see!!"
+"Chris stop!! No!!!"
 
 
 
   <h6 align="center">
-<img width="545" height="536" alt="IMG_4239" src="https://github.com/user-attachments/assets/1fea25cf-9c5c-4b22-b924-f722eb8fe282" />
+<img width="545" height="536" alt="IMG_4239" src="https://github.com/user-attachments/assets/47013803-9ab6-4d73-913c-e5c4c36c4fbe" />
 <h6 align="center">
+
 
 
 <h6 align="center">
