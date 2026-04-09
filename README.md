@@ -1,19 +1,20 @@
 <h6 align="center">
-THE chrichard shipper
+THE MURR IDC!!
 <h6 align="center">
-non-sharing richard aiken yumeshipper
+James Murray Luvr
 
 <h6 align="center">
 <img src="https://komarev.com/ghpvc/?username=lumberdean&color=795548&label=🔪">
 </p>
   
 <h6 align="center">
-"Chris stop!! No!!!"
+"Like a BAWWSE"
+
 
 
 
   <h6 align="center">
-<img width="545" height="536" alt="IMG_4239" src="https://github.com/user-attachments/assets/47013803-9ab6-4d73-913c-e5c4c36c4fbe" />
+<img width="545" height="536" alt="IMG_4239" src="https://github.com/user-attachments/assets/418ba412-82c0-482f-89c3-d7e64aefb4a3" />
 <h6 align="center">
 
 
