@@ -1,9 +1,9 @@
-<h6 align="center">
-James Murray Luvr
 
 <h6 align="center">
 <img src="https://komarev.com/ghpvc/?username=lumberdean&color=795548&label=🤡">
 </p>
+  <h6 align="center">
+James Murray Luvr
   
 <h6 align="center">
 "Like a BAWWSE"
