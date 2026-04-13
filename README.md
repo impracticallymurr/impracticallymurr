@@ -1,6 +1,4 @@
 <h6 align="center">
-THE MURR IDC!!
-<h6 align="center">
 James Murray Luvr
 
 <h6 align="center">
