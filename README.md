@@ -3,7 +3,7 @@
 <img src="https://komarev.com/ghpvc/?username=lumberdean&color=795548&label=🤡">
 </p>
   <h6 align="center">
-"i have a foolproof plan!"
+"i've got a foolproof plan!"
   
   <h6 align="center">
 <img width="75" height="100" alt="bg,f8f8f8-flat,750x,075,f-pad,750x1000,f8f8f8-Photoroom" src="https://github.com/user-attachments/assets/d03c5155-ee29-4519-8c92-fbdd317452dc" />
