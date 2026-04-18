@@ -8,10 +8,10 @@
 
 
 <a href="https://lumberdean.straw.page">straw</a>
-
+<h6 align="center">
+me and gang
   <h6 align="center">
-<img width="500" height="281" alt="tumblr_ph2n1sAqwh1x9esqpo9_500" src="https://github.com/user-attachments/assets/9e457d18-ec10-4acb-9e14-4679c48cb8f1" />
-
+<img width="480" height="270" alt="cb509abb47b122d4c6a7a01d8a1c03ef" src="https://github.com/user-attachments/assets/161b0d03-9550-43af-99d9-4a11635eda43" />          
 
 
 <h6 align="center">
